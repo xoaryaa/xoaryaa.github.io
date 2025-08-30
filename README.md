@@ -1,1 +1,0 @@
-# xoaryaa.github.io
